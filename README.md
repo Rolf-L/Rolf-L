@@ -1,4 +1,4 @@
-Hi, I'm Rolf -DJ7TH-, tht's my amateur radio callsign.
+Hi, I'm Rolf -DJ7TH-, that's my amateur radio callsign.
 
 Here you find more infos about me:
 
